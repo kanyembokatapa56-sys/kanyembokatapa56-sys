@@ -82,9 +82,7 @@ I am interested in opportunities across:
 ## 📫 Contact
 
 **Email:** [kanyembokatapa56@gmail.com](mailto:kanyembokatapa56@gmail.com)
-**LinkedIn:** linkedin.com/in/kanyembo-katapa65b6a4187
-**GitHub:** github.com/kanyembokatapa56-sys
-**YouTube:** youtube.com/@kanyembokatapa8217
+**YouTube:**[youtube.com/@kanyembokatapa8217](youtube.com/@kanyembokatapa8217)
 
 <!--
 **kanyembokatapa56-sys/kanyembokatapa56-sys** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
